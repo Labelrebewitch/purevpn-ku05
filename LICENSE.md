@@ -1,4 +1,4 @@
-
+ultimate PureVPN Client | cross-platform-support + 24/7-support offers the most advanced PureVPN client, with cross-platform-support and 24/7-support. Ideal for users who value
 
 
 
